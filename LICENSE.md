@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Photo for macOS template with rare Affinity Photo for macOS Template | masking tools + smart objects. Featuring masking tools and smart objects, it's the
 
 
 
